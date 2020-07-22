@@ -6,5 +6,8 @@ Hobi : ngoding
 IG : @kzgala (jangan lupa follow) 
 LinkedIn : ManggalaKZ
 
+
+![alt text](ManggalaKZ/perkenalan/IMG_5616.JPG)
+
 jika ingin melihat foto saya silahkan kunjungi ig saya @kzgala
 https://www.instagram.com/kzgala/?hl=id
