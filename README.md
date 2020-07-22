@@ -9,5 +9,4 @@ LinkedIn : ManggalaKZ
 
 ![alt text](https://github.com/ManggalaKZ/perkenalan/blob/master/IMG_5616.JPG)
 
-jika ingin melihat foto saya silahkan kunjungi ig saya @kzgala
-https://www.instagram.com/kzgala/?hl=id
+
