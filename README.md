@@ -5,3 +5,6 @@ Pendidikan terakhir : smp 21 malang
 Hobi : ngoding 
 IG : @kzgala (jangan lupa follow) 
 LinkedIn : ManggalaKZ
+
+jika ingin melihat foto saya silahkan kunjungi ig saya @kzgala
+https://www.instagram.com/kzgala/?hl=id
